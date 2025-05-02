@@ -1,2 +1,2 @@
 # cadavre-exquis
-Jogo de história com git.
+Uma pessoa estava em Quixadá na praça do Leão então ...
