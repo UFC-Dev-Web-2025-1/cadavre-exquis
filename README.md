@@ -1,5 +1,6 @@
 # cadavre-exquis
 Uma pessoa estava em Quixadá na praça do Leão então ...
+Resolveu comprar algumas coisas, mas tinha um problema, não lembrava ao certo o que deveria comprar.
 de repente encontrei 5.000 reais a toa, tava lá jogado.
 Quando um grande acidente ocorreu, acertando sua perna ...
 de repente encontrou 5.000 reais a toa, tava lá jogado.
