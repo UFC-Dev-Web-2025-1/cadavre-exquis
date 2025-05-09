@@ -115,3 +115,5 @@ The storm is aproaching...
 
 
 ![Vergil](vergil.png)
+
+Quando saiu do hospital, voltou até a praça do leão, ele começou ouvir um som estranho vindo da estátua do leão. Intrigado, se aproximou e percebeu que a estátua parecia está respirando. Será estava sonhando ou o leão realmente estava ganhando vida ?
