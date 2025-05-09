@@ -1,2 +1,3 @@
 # cadavre-exquis
 Uma pessoa estava em Quixadá na praça do Leão então ...
+Viu um amigo e foi conversar com ele
