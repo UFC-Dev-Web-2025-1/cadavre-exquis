@@ -109,4 +109,7 @@ e assim encerrramos essa emocionante historia....
                 The End
 
 
-The storm is aproaching...![Vergil](vergil.png)
+The storm is aproaching... 
+
+
+![Vergil](vergil.png)
