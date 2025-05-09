@@ -4,6 +4,8 @@ Resolveu comprar algumas coisas, mas tinha um problema, não lembrava ao certo o
 
 de repente encontrei 5.000 reais a toa, tava lá jogado.
 
+Provavelmente esse dinheiro foi arremessado pelo grande Leão da Praça, pois de maneira aleatória ele costuma realizar proezas como essa, após isso,
+
 Ela se deparou com a Lady Gaga cantando Abracadabra na praça do leão e sua equipe distribuindo pizzas de Marguerita para os fãs!!! 🤣🤣🤣
 
 Quando um grande acidente ocorreu, acertando sua perna ...
