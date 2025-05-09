@@ -1,7 +1,7 @@
 # cadavre-exquis
 Uma pessoa estava em Quixadá na praça do Leão então ...
 de repente encontrei 5.000 reais a toa, tava lá jogado.
-<<<<<<< HEAD
+
 Ela se deparou com a Lady Gaga cantando Abracadabra na praça do leão e sua equipe distribuindo pizzas de Marguerita para os fãs!!! 🤣🤣🤣
 
 Quando um grande acidente ocorreu, acertando sua perna ...
