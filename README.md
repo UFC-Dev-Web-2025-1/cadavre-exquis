@@ -9,3 +9,4 @@ ela decidiu fotografar o leão
 Explorar as belezas de quixada, indo ao Cedro.
 começou a chover muito forte, então fui atrás de um lugar para me abrigar..
 Além de comer um peixe com baião cremoso e uma coca gelada...
+E ter flashbacks horriveis sobre aulas da ufc
