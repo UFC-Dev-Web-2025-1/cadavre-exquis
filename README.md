@@ -1,2 +1,3 @@
 # cadavre-exquis
 Uma pessoa estava em Quixadá na praça do Leão então ...
+observando o ceú estrelado da noite, desejou que achasse um caminho...para o seu desejo
