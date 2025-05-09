@@ -16,6 +16,8 @@ A chuva era assustadora, pois lembrei que a infraestrutura do centro era preocup
 =======
 começou a chover muito forte, então fui atrás de um lugar para me abrigar..
 Além de comer um peixe com baião cremoso e uma coca gelada...
+E ter flashbacks horriveis sobre aulas da ufc
+quando passou a grande tempestade, já alimentado, decidiu então partir para a pedra da Galinha...
 
 >>>>>>> e6b2d1665f78deb0b50fe174545447304500bdbf
 
