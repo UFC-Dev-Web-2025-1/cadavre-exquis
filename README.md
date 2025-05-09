@@ -79,9 +79,9 @@ Sem saber o que escolher...
 Decido conhecer mais sobre a cidade, indo a outros pontos turisticos, como o Cedro...  
 <<<<<<< HEAD
 Ele comeu um pirão muito bom...
-<<<<<<< HEAD
+
 Pirao com frango foi um combo bom..
-=======
+
 
 
 
@@ -96,6 +96,9 @@ Depois um raio caiu nele no caminho para o hospital.
 Ficou no hospital por um tempo bom
 
 
+quando encontou varias pessoas e essa pessoas eram ciaganas contando varias historias comicas e tragicas
+
+
 
 
 
@@ -107,4 +110,4 @@ e assim encerrramos essa emocionante historia....
 
                 The End
 
->>>>>>> 9c105bfbc293997bad730487fad4fde4147a425e
+
