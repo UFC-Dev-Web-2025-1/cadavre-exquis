@@ -22,3 +22,7 @@ E ter flashbacks horriveis sobre aulas da ufc
 quando passou a grande tempestade, já alimentado, decidiu então partir para a pedra da Galinha...
 
 >>>>>>> e6b2d1665f78deb0b50fe174545447304500bdbf
+
+A galinha é um ambiente, muito bacana e legal, mas o indivíduo da praça do Leão continua a me seguir.
+O que fazer? Estaria em busca de meus míseros R$5.000,00??? Isso é causa de grande consternação, estaria minha vida em perigo?
+Tal nervosismo se assentuava por estar seguindo para um local relativamente isolado, se meu Algoz me seguisse, tal situação seria trágica... 
