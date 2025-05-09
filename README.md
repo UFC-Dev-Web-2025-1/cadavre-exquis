@@ -78,6 +78,9 @@ Decido conhecer mais sobre a cidade, indo a outros pontos turisticos, como o Ced
 <<<<<<< HEAD
 Ele comeu um pirão muito bom...
 
+Pirao com frango foi um combo bom..
+
+
 
 
 Ele comeu um pirão muito bom...![image](https://github.com/user-attachments/assets/92070911-276c-4194-8252-dad0c05c45b7)
@@ -87,9 +90,17 @@ No cedro, há um restaurante...
 Uma pessoa estava em Quixadá na praça do Leão então ...
 Viu um amigo e foi conversar com ele.
 Depois caiu e se machucou.
+<<<<<<< HEAD
 Depois um raio caiu nele no caminho para o hospital..
 e o fim fui tragico hahaha
 
+Depois um raio caiu nele no caminho para o hospital.
+Ficou no hospital por um tempo bom
+
+
+quando encontou varias pessoas e essa pessoas eram ciaganas contando varias historias comicas e tragicas
+
+assim seguir em uma nova...
 
 
 
@@ -102,4 +113,5 @@ e assim encerrramos essa emocionante historia....
 
 
                 The End
+
 
