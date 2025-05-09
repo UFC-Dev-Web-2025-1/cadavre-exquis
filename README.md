@@ -1,2 +1,3 @@
 # cadavre-exquis
 Uma pessoa estava em Quixadá na praça do Leão então ...
+ela decidiu fotografar o leão
