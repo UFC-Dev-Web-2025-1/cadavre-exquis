@@ -1,3 +1,4 @@
 # cadavre-exquis
 Uma pessoa estava em Quixadá na praça do Leão então ...
-observando o ceú estrelado da noite, desejou que achasse um caminho...para o seu desejo
+de repente encontrei 5.000 reais a toa, tava lá jogado.
+
