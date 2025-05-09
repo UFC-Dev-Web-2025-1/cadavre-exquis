@@ -22,14 +22,11 @@ Decidi pagar um baião cremosa com uma coca para esse indivíduo também...
 E ter flashbacks horriveis sobre aulas da ufc
 quando passou a grande tempestade, já alimentado, decidiu então partir para a pedra da Galinha...
 
-<<<<<<< HEAD
 ![alt text](Pedra_da_Galinha_Choca_-_Broody_Hen's_Rock.jpg)
 
 
 A pessoa que estava na praça, que definitivamente não sou eu, Narrador personagem do Leão também buscou fugir da chuva e foi a meu encontro...
 Decidi pagar um baião cremosa com uma coca para esse indivíduo também...
-=======
->>>>>>> 87c342e743c64558c0747fa918a7ed8395da5f0c
 Quando fui pegar, minha gata me acordou... era um sonho.
 
 
