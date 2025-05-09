@@ -87,7 +87,8 @@ No cedro, há um restaurante...
 Uma pessoa estava em Quixadá na praça do Leão então ...
 Viu um amigo e foi conversar com ele.
 Depois caiu e se machucou.
-Depois um raio caiu nele no caminho para o hospital.
+Depois um raio caiu nele no caminho para o hospital..
+e o fim fui tragico hahaha
 
 
 
@@ -97,6 +98,7 @@ Depois um raio caiu nele no caminho para o hospital.
 
 
 e assim encerrramos essa emocionante historia....
+
 
 
                 The End
